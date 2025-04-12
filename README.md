@@ -2,23 +2,41 @@
 Credits for photos, footage, and music from the Classic Fallout Iceberg Vol. 2 video.
 
 Images
+
 Talking Head Images: https://fallout.wiki/wiki/Talking_Head
+
 Talking Head Images: https://fallout.fandom.com/wiki/Talking_head
+
 Clay Cabinet: https://fallout.fandom.com/wiki/Talking_head?file=FO1_Digitization_of_Clay_Heads_07.png
+
 Fallout d20/Exodus: https://fallout.fandom.com/wiki/Fallout_Pen_and_Paper_d20
+
 Glutton Creeper Games: https://fallout.fandom.com/wiki/Glutton_Creeper_Games
+
 D20: https://rpggeek.com/image/501090/d20-system
+
 Dungeons and Dragons: https://imaginaire.com/fr/jeux-de-roles/dungeons-dragons-jetee-ultra-douce-original-art-122-cm-x-152-cm.html
+
 3rd Edition: https://imaginaire.com/fr/jeux-de-roles/dungeons-dragons-jetee-ultra-douce-original-art-122-cm-x-152-cm.html
+
 Wizards of the Coast: https://freebiesupply.com/logos/wizards-of-the-coast-logo/
+
 Open Game License: https://www.dndbeyond.com/resources/1781-systems-reference-document-srd?srsltid=AfmBOoqQxbcE8dHtCHHHe1gGmHBS5E5DGGwH59HPqyalqbhz2LnhdZYg
+
 OGL: https://www.d20srd.org/
+
 OGL 3rd Edition: https://www.d20srd.org/index.htm
+
 Uncle Sam: https://oldtowncrier.com/2023/07/01/uncle-sam-wants-you-2/
+
 Exodus PDF: https://i.4pcdn.org/tg/1384506917679.pdf
+
 Exodus/Fallout: https://pixelsandgrids.wordpress.com/2009/02/11/exoduspti/
+
 Partnership: https://www.theguardian.com/artanddesign/2020/aug/12/burning-man-pink-floyd-wish-you-were-here-aubrey-powell-best-photograph
+
 Interplay: https://vgmdb.net/org/3050
+
 Buyout: https://www.ign.com/articles/2007/04/13/bethesda-buys-fallout-ip-from-interplay
 Space Race: https://billofrightsinstitute.org/activities/was-federal-spending-on-the-space-race-justified
 Cold War: https://www.newsweek.com/nuclear-missile-test-cold-war-videos-declassified-750581
